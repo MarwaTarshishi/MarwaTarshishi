@@ -1,5 +1,5 @@
 # 💫 About Me:
-im studing 
+My goal is to constantly improve my skills while contributing to innovative and impactful projects .
 
 
 ## 🌐 Socials:
